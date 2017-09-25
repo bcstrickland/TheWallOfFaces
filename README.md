@@ -1,3 +1,3 @@
 # TheWallOfFaces
 
-![alt text](https://imgur.com/a/TX3L1)
+![alt text](https://i.imgur.com/hasP0q1.jpg)
